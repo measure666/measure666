@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 
 ### A learner
 
-- 📫 How to reach me **theyuandeer@163.com**
+- 🌱 I’m currently learning what I'm interested in
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
